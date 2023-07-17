@@ -1,5 +1,4 @@
-### 
-Privacy Policy
+**Privacy Policy**
 This privacy policy is applicable to all games of “Mutated Games”.
 
 **Personal Information**
